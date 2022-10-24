@@ -14,8 +14,8 @@
 
 
 
-### Notes:
+### Notes: This recipe is rated 4/5 stars on the recipe website, which means it's pretty tasty.
 
 
 
-### Codemates #
+### Codemates #5
