@@ -16,6 +16,8 @@
 
 ### Notes:
 
-
+This was a collaborative effort from the entire team!
 
 ### Codemates #
+
+@danielpmahoney @mikahyden @bpicciano @willmckelvey @abianesucb
