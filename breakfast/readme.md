@@ -8,7 +8,13 @@
 
 
 ## Equipment needed:
+Sauce pan
 
+Large frying pan
+
+Large mixing bowl  
+
+Plate or tray
 
 ## Steps for preparation:
 
