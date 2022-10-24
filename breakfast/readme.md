@@ -27,8 +27,8 @@ Lay 4 pieces of bread out on a plate or tray, and divide the cooled fruit across
 Step 5 - 
 Heat a large frying pan or griddle over medium-high and melt enough butter to coat the bottom. Just as the butter begins to bubble, float a sandwich on top of the egg batter for 3 seconds, then flip to soak the other side for 3 more seconds. Hold the sandwich over the bowl for 10 seconds to allow any excess batter to drip off, then transfer it to the hot pan. Repeat with as many sandwiches as will fit in your pan; you may need to do this in batches. Cook until deep golden brown, 1 to 2 minutes per side, adding butter to the pan as needed. Transfer to plates and dust generously with confectioners’ sugar.
 
-### Notes:
+### Notes: This recipe is rated 4/5 stars on the recipe website, which means it's pretty tasty.
 
 
 
-### Codemates #
+### Codemates #5
