@@ -1,6 +1,6 @@
-# Replace with recipe name
+# Blackberry Stuffed French Toast
 
-## Servings: 
+## Servings: 4
 
 ## Time to prepare: 
 
