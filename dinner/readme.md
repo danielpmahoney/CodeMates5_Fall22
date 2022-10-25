@@ -1,6 +1,6 @@
-# Replace with recipe name
+# Pad Kee Mao
 
-## Servings: 
+## Servings: 2-3 servings
 
 ## Time to prepare: 
 Prep: 10 mins  Cook: 6 mins  Total: 16 mins
