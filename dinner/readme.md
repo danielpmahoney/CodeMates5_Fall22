@@ -50,6 +50,8 @@ Prep: 10 mins  Cook: 6 mins  Total: 16 mins
 
 ### Notes:
 
-
+This was a collaborative effort from the entire team!
 
 ### Codemates #
+
+@danielpmahoney @mikahyden @bpicciano @willmckelvey @abianesucb
