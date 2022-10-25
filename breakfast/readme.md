@@ -6,7 +6,7 @@
 
 ## Ingredients:
 
-    1pint/285 grams fresh or frozen blackberries, raspberries or blueberries (about 2 heaping cups)
+    1x pint/285 grams fresh or frozen blackberries, raspberries or blueberries (about 2 heaping cups)
     ⅓cup plus 3 tablespoons/100 grams granulated sugar
     1tablespoon lemon juice
     Kosher salt
